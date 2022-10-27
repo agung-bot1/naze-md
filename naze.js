@@ -11,7 +11,7 @@ Yg Reupload Tanpa Kasih Cr
 Sc Akan Saya Encode
 
 Base : Hisoka
-Recode : Naze & ( Nama Lu )
+Recode : Naze & ( Agung )
 
 **/
 
